@@ -43,5 +43,3 @@ her demanding job as a paralegal, where long hours and poor posture have contrib
 persistent neck and shoulder tension. Recently, she has begun experiencing intermittent
 insomnia, further impacting her energy levels and overall well-being.
 
-Response:
-
